@@ -18,7 +18,7 @@ Cursos de ITIL e Cisco como principais conhecimentos.
 
 - Celular: (21) 97648-5160
 - E-mail: wilsonfabiano@gmail.com
-- LinkedIn: in/wilsonfabiano
+- LinkedIn: https://linkedin.com/in/wilsonfabiano
 
 
 
